@@ -1,4 +1,4 @@
-# 
+# Último bitmex trading bot extensiones for Mac OS | Premium bitmex trading bot extensiones for PC Windows. Featuring análisis de momento and estrategia de reversión a la media — optimized for maximum performance.
 
 
 
